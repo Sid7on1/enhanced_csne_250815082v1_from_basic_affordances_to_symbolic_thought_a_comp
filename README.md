@@ -1,0 +1,2 @@
+# enhanced_csne_250815082v1_from_basic_affordances_to_symbolic_thought_a_comp
+AI-Generated Project: enhanced_cs.NE_2508.15082v1_From_Basic_Affordances_to_Symbolic_Thought_A_Comp - Created by WATCHDOG Multi-Agent System
